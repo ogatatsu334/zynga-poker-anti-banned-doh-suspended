@@ -1,0 +1,1 @@
+zynga-poker-anti-banned-doh-suspended
